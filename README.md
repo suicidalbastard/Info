@@ -1,0 +1,2 @@
+# Info
+Norman . Eren (⁠◠⁠‿⁠・⁠)⁠—⁠☆
